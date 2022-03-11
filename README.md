@@ -1,1 +1,0 @@
-# BuyscriptXandy-Trash-Loader-main-Loader
